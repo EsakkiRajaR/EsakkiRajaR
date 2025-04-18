@@ -7,5 +7,6 @@
 - 📫 How to reach me:
      - 👨‍💻Work: esakkirajar1010@gmail.com
      - 🙋Personal: esakkiraja.10.r@gmail.com
+     - [Connect with me on LinkedIn](https://www.linkedin.com/in/esakki-raja-r-8421051a3/)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: My bike has more lines of code than some of my projects.
